@@ -22,6 +22,7 @@
 | **My role** | Founder and chef: product, pricing, marketing, ordering and fulfilment |
 | **Signature products** | **Ohn No Khao Swè** (coconut curry noodle soup, made to the original Rangoon street recipe) and **Burmese Letho** (a vegan-friendly noodle dish built on a blend of 27 ingredients with a tangy tamarind sauce) |
 | **Channel** | Instagram ([@the_little_burma](https://www.instagram.com/the_little_burma/)): discovery, ordering and customer conversations |
+| **Customers** | More than 1,500 served |
 | **Recognition** | Featured in several publications |
 
 ## 2. The opportunity
